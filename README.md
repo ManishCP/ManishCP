@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **chikkavadaragudipr.m@northeastern.edu**
 
-- 📄 Checkout my resume [https://drive.google.com/file/d/1-fAElim-8kj0HItjtNNJyRwxt_8zxfK_/view?usp=sharing](https://drive.google.com/file/d/1-fAElim-8kj0HItjtNNJyRwxt_8zxfK_/view?usp=sharing)
+- 📄 Checkout my resume [ManishCP_Full_Stack_developer]([https://drive.google.com/file/d/1-fAElim-8kj0HItjtNNJyRwxt_8zxfK_/view?usp=sharing](https://drive.google.com/file/d/1SRDNNmR5qkkkrDD6dWih-sV_WWMB8Ufn/view?usp=sharing))
 
 - ⚡ Fun fact **I am damn funny!!**
 
